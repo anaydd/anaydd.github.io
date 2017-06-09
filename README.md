@@ -1,1 +1,0 @@
-# anaydd.github.io
